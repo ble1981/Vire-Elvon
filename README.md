@@ -63,6 +63,4 @@ Vire Elvon yhdistää käytettävyyden, monipuoliset toiminnot ja korkean turval
 
 Vakaa suorituskyky, mukautuva käyttöliittymä ja moderni teknologia tekevät siitä yhden markkinoiden vahvimmista toimijoista.
 
-![Kryptovaluutta kojelauta](https://images.unsplash.com/photo-1623888012439-df53e248ba08?auto=format&fit=crop&w=1170&q=80)
-
 > 🚀 [Siirry Vire Elvon:n viralliselle sivustolle nyt](vireelvon.fi)
